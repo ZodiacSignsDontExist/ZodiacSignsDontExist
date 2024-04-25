@@ -1,3 +1,4 @@
 hi im zodiacsignsdontexist
 
-i think im cool
+i play roblox and stuff so thats cool
+i also know a bit about luau, python, html and css!!!!!!!!!!!
